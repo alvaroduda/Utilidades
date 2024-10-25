@@ -1,0 +1,1 @@
+# Conhecimentos que podem ser útil
